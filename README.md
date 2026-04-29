@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> أنا مش مرتاح وعيوني سهرانة
+> قلبي بيناديكي وروحي حيرانة
+> في غيابك عني بتطول الليالي
+> نار الشوق بتكوي كل خيالي
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
